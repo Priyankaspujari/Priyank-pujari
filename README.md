@@ -1,4 +1,4 @@
-# <div align="center">👋 Hi, I’m **Adarsh Gayadolli**</div>
+# <div align="center">👋 Hi, I’m **Priyanka pujari**</div>
 
 ---
 
